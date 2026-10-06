@@ -28,5 +28,6 @@ I enjoy solving problems, debugging applications, and understanding how things w
 
 ### 📫 Connect with me
 
-* **LinkedIn:** [Your LinkedIn Profile]
-* **Portfolio:** [Coming Soon]
+* **LinkedIn:** [www.linkedin.com/in/
+shubham-sheakher-11]
+* **Portfolio:** [_ _ _]
